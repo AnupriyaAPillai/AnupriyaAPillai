@@ -2,6 +2,7 @@
 
 🎓 Final Year B.Tech Student  
 🎨 Passionate about **Technology** 
+
 📫 Reach me at **anupriyakottadiyil@gmail.com**
 
 ---
